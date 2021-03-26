@@ -1,0 +1,1 @@
+You are on a mission, sent out by NASA. Nasa has located many asteroid heading towards earth, and it is your duty to stop the asteroids. Survive for as many years as you can, and the people  on Earth will give you reinforcements for every year you defend Earth
